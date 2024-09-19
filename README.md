@@ -1,6 +1,6 @@
 # Marc Pallares Pino
 ## Hola 👋
-### 19/09/2024 🕓
+### Actualitzat el 19/09/2024 🕓
 
 
 
