@@ -8,7 +8,7 @@
 
 - 📍 Visc a L'Ametlla De Mar
 
-- 👅 Lenguages: Español , Catala , Ingles(mitg) , Frances(poc).
+- 👅 Lenguages: Español , Catala , Ingles , Frances.
 - ♣️ M'agrada el casino : Blackjack , Poker .
 - ⚽ M'agrada el futbol i sobre tot el Barça.
 - 🌱 I’m currently learning 2nDAM
